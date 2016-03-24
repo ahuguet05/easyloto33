@@ -1,0 +1,2 @@
+# easyloto33
+mdr
