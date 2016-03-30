@@ -1,2 +1,1 @@
 # easyloto33
-mdr
